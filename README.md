@@ -1,4 +1,4 @@
-永久域名:www.rarbt.us
+永久域名：www.rarbt.us
 
 备用域名一：www.rarbt.lol
 
